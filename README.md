@@ -88,7 +88,7 @@ Link:
 
 Here is the link of demo Video . You can check :)
 
-https://youtu.be/IvCs_vglpXU?si=s9hMi_qkd5mG4AkO
+https://youtu.be/jYQHRCI76ZE?si=2Ea_eh0jLHsV62m3
 
 
 📬 Get Involved:
